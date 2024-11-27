@@ -1,1 +1,1 @@
-This project sales for 5,161 USD
+This project will be sale at 4.395,60 USD
